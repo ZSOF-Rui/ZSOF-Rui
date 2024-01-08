@@ -5,4 +5,4 @@
 Here are some ideas to get you started:
 
 - 🌱 I’m currently learning Web
-- 📫 How to reach me: 1093848542@qq.com
+- 📫 How to reach me: xinchencloud@outlook.com
